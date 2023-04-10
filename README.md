@@ -1,1 +1,0 @@
-# 4gvosl.alod
